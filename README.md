@@ -1,4 +1,4 @@
-# Remy
+
 
 ![image](https://github.com/SimonIyamu/hackzurich23/assets/28822566/abff99d4-f81b-4de9-910f-dd419ac672f7)
 
